@@ -6,4 +6,4 @@ Olá! Eu sou a Laysa Minelly
 
 •❤️ Gosto muito de musicas, livros e series
 
-•🎓 Fazer futuramente a faculdade de Sistema de Informações 
+•🎓 Fazer futuramente a faculdade de Sistema de Informação
